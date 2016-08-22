@@ -1,0 +1,2 @@
+# notes
+Lu Notes
